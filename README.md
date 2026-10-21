@@ -3,7 +3,7 @@ Marketing is too crowded. Those with already established business overshadow, th
 
 # Personal problem: What am I facing?
 
-<img width="596" height="612" alt="image" src="https://github.com/user-attachments/assets/44f97bc7-f45e-4bdf-a022-a6885e4d576a" />
+<img width="800" height="533" alt="image" src="https://github.com/user-attachments/assets/1c0a15e5-358c-44e2-93aa-8b0615493061" />
 
 # Goal: What do I want to achieve?
 
